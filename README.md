@@ -2,7 +2,8 @@
 
 # helloxz/nsfw
 
-![3953634eea02b6e7.png](https://img.rss.ink/imgs/2025/12/06/3953634eea02b6e7.png)
+<img width="1200" height="743" alt="image" src="https://github.com/user-attachments/assets/147d6021-f255-492d-8158-d67e6d239e5d" />
+
 
 ## 关于
 
